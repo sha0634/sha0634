@@ -1,5 +1,6 @@
 - 👋 Hey, I’m @sha0634.
--Undergrad student
+- Undergrad student
+- i am unemployed ik
 
 
 
